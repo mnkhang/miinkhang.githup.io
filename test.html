@@ -1,0 +1,37 @@
+<html>
+<head>
+<style>
+.dropdown{
+   position: relative;
+   display: inline-block;
+}
+.dropdown-content{
+   display: none;
+   position: absolute;
+   background-color: #f5f5f5;
+   z-index: 1;
+   list-style: none;
+}
+.dropdown:hover .dropdown-content{
+   display: block;
+}
+.dropdown a:hover{
+    color: red;
+}
+</style>
+</head>
+<body>
+<li class="nav-item dropdown">
+   <a class="nav-link" href="#" id="navbarDropdown">Dropdown</a>
+   <div class="dropdown-content">
+   <a class="dropdown-item" href="#">Action</a>
+   <div class="dropdown-divider"></div>
+   <a class="dropdown-item" href="#">Another action</a>
+   <div class="dropdown-divider"></div>
+   <a class="dropdown-item" href="#">Something else here</a>
+   </div>
+</li>
+</body>
+</html>
+
+

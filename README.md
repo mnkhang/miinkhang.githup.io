@@ -1,1 +1,25 @@
 # miinkhang.githup.io
+VÀI ĐIỀU CHO CÁC BẠN TRẺ
+1, Đừng lãng phí thời gian nữa. Khi các bạn đang ngồi lướt facebook thì xã hội đã bỏ các bạn quá xa rồi. Tụ tập ít thôi, shopping ít thôi, mạng xã hội ít thôi. Nếu tốt nghiệp đại học mà bạn vẫn phải nhờ vả xin việc, thì nên hỏi cả thời Đại học, bạn đã giết thời gian như thế nào.
+2, Đừng để công nghệ chi phối mình, dùng Internet để học, để giải trí, để kết nối, chứ đừng biến nó thành cuộc sống. Không nhất thiết ăn gì, mặc gì, nghĩ gì, làm gì, khó chịu gì, yêu thương gì cũng phải post lên mạng xã hội. Không cần thiết phải biến mình thành nô lệ của chiếc "Smart Phone". Nếu đi ra ngoài chơi thì đừng cắm đầu vào điện thoại, nếu định chơi với điện thoại thì đừng ra ngoài.
+3, Tiêu tiền cho đúng cách, cái gì cần dùng và có ích thì hẵng mua, cái gì chỉ để khoa trương thì đừng mua. Nếu không cần thiết phải lên đời điện thoại từ iPhone 6 lên iPhone 7 chỉ vì chụp ảnh đẹp hơn một chút thì dùng cái iPhone 6 cũng được. Đừng có khoa trương khi thực chất bản thân chưa làm được gì.
+Nếu vẫn sống chật vật với đồng lương mới ra trường, hay vẫn phải xin tiền bố mẹ thì đi xe đạp cũng được, không cần đi Vision hay Vespa làm gì. Đồng tiền kiếm thực sự không dễ dàng.
+4, Sống có kỉ luật đi. Đừng có lười biếng, lộn xộn hay ham vui quá đà. Tự kiểm soát cuộc sống của mình, không ai làm điều đó hộ mình cả. Tuổi trẻ, đừng biến cuộc sống của mình thành 1 mớ hỗn độn.
+5, Đọc sách, sách gì cũng được, miễn là đừng để não mình rơi vào tình trạng chán tư duy, chán thay đổi và thậm chí là thấy chán đời. Tuổi trẻ, có biết bao nơi phải đến, bao người thú vị để gặp bao thứ phải học và bao điều hay ho để làm. Lúc nào thấy chán nản, nên đi mua một cuốn sách mới.
+6, Đừng trì hoãn. Việc phải làm thì cần phải ép mình làm, mà làm cho xong. Ai cũng sống ngần ấy thời gian, người ta hơn nhau ở cái biết dùng thời gian ấy thế nào. Trì hoãn là lười biếng, trì hoãn là không tôn trọng thời gian của chính mình, không tôn trọng chính mình.
+Không ai ăn cắp hay giết thời gian của bạn cả, chỉ có bạn tự giết thời gian của mình, giết chết tuổi trẻ của chính mình.Tuổi trẻ chỉ có 1 lần, nên nghĩ kĩ về điều đó.
+7, Đi thật nhiều. Mỗi bước đi xa hơn là một bước lớn khôn hơn, để biết trân trọng quãng đời này, thực ra chỉ vài chục năm, không dài như mình tưởng.
+Đi đúng nghĩa của đi. Đi trải nghiệm, cảm nhận, suy ngẫm chứ không phải đi theo phong trào. Đi ào ào và chỉ để post hình thì cũng không khác gì không đi là mấy.
+8, Rèn luyện sự tự tin từ bây giờ đi. Mình không tin vào mình thì không ai tin mình cả. Cũng như luyện tập thể chất, tinh thần cũng phải luyện. Nếu sợ không làm được thì phải ép mình làm, thất bại nhiều lần rồi thì khắc hết sợ. Nếu sợ nói trước đám đông thì càng nên nói trước đám đông, nếu sợ giao tiếp thì càng nên giao tiếp. Tự tin không là thứ tự dưng có, nhưng chắc chắn là luyện được. Phải tự tin là mình làm được thì làm việc mới thành.
+9, Sống có lý tưởng lên. Nghĩ thoáng ra, nghĩ rộng ra, làm thật nhiều vào và đừng sợ sai. Đạp lên định kiến với áp lực xã hội mà sống. Tuổi trẻ, phải sống như chưa từng được sống.
+10, Cứ yêu đi. Đổ vỡ cũng không sao, buồn cũng không sao, đau cũng không sao. Đổ vỡ thì làm lại, làm lại hai lần mà chưa được thì nhiều lần. Đừng sợ không tìm thấy người yêu mình cả đời, chỉ sợ mình quá hèn nhát không dám yêu thêm. Tình yêu là cách nhanh nhất khiến người ta hoàn thiện bản thân.
+11, Độc thân cũng được, Độc thân thì vui kiểu độc thân, dành thời gian mà làm nhiều thứ cho bản thân mình. Đừng có vì thấy người ta có đôi có cặp còn mình chỉ có 1 mình mà nảy sinh chán nản. Cô đơn cũng là cái hay.
+12, Đừng nên lập gia đình quá sớm. Đừng ổn định quá sớm. Hãy độc thân cho tới khi nào cảm thấy thực sự sẵn sàng cho một cuộc sống mà mình phải gắn với rất nhiều sự ràng buộc và trách nhiệm. Nếu chưa cảm thấy mình có thể chăm sóc tốt cho bản thân mình thì đừng vội lập gia đình. Hãy tập sống cuộc đời của mình cho tốt đã. Ai hỏi bao giờ lấy chồng hay lấy vợ thì cứ kệ đi.
+13, Phải độc lập, nhất định phải cố gắng. Tự mình học, tự mình cố gắng, tự mình kiếm việc làm, tự mình kiếm tiền, tự mình xây sự nghiệp. Rồi sau này có con cái, sẽ có nhiều hơn những câu chuyện để kể. Có nhiều con đường dễ để đi, nhưng nếu con đường được trải thảm sẵn thì đi tới đích rồi cũng chẳng thấy gì vui thú. Những gì tự mình có mới là của mình.
+Bạn nghĩ rằng, cái bản thân mình muốn hướng đến không phải là kết quả, mà đó là sự hưởng thụ quá trình.
+Mỗi khi buồn bã, cảm thấy suy sụp, thất vọng về bản thân, hay gặp phải nhiều rắc rối, khó khăn khi thực hiện lựa chọn của bản thân, bạn phải cố gắng giải toả đi những suy nghĩ tiêu cực để tìm lại nghị lực phấn đấu ban đầu. Và phải luôn tự nhắc với bản thân rằng "Ước mơ không hề toả sáng, toả sáng là những người theo đuổi ước mơ chúng ta."
+Cố gắng tuy hơi mệt một chút, nhưng ít nhất cảm giác luôn thấy an tâm...
+3 "ĐỘNG CƠ" GIÚP BẠN "VỀ ĐÍCH" NHANH HƠN
+- Sách hay
+- Thầy giỏi, bạn tài
+- Kỷ luật bản thân
